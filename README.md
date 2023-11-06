@@ -18,3 +18,11 @@ https://github.com/luisqtr/exciteometer
 
 # Youtube Video
 https://www.youtube.com/watch?v=kRXyUeH9Rkk
+
+# Notes
+Unikeys
+
+Aram7815     
+Lzho6117     
+Kpin2846     
+Cbho6100
